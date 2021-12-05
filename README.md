@@ -1,2 +1,2 @@
 
-![BlackKaako](collect_star.gif)]
+![BlackKaako](collect_star.gif)
